@@ -1,1 +1,4 @@
-![skibidi](https://cdn.discordapp.com/attachments/888740562587516929/1267126189651136644/IMG_8389.jpg?ex=66a7a6b9&is=66a65539&hm=5f9720dc1a21840174aa0c4eb11228da290282a30dac64c20f510822590ffab3&)
+![](https://images-ext-1.discordapp.net/external/9e_AaWNQ4veQwJN1ZmVagvZN5htjyYaKGbkzXRn2oEc/https/files.catbox.moe/qmb37w.png?width=1676&height=112)
+
+
+![](https://images-ext-1.discordapp.net/external/9e_AaWNQ4veQwJN1ZmVagvZN5htjyYaKGbkzXRn2oEc/https/files.catbox.moe/qmb37w.png?width=1676&height=112)
