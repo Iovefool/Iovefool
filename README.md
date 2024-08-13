@@ -4,7 +4,13 @@
 </h4>
 </p>
 
-![](https://files.catbox.moe/2nbekk.png)
+<h4 align="center">
+  
+![](https://files.catbox.moe/83taku.png)
+</h4> 
+<h4 align="center">
+
+![](https://files.catbox.moe/p2cx08.png)
 
 <h4 align="center">
   
@@ -12,4 +18,8 @@
 </h4>
 </p>
 
-![](https://files.catbox.moe/bcvdea.png)
+<h4 align="center">
+  
+![](https://files.catbox.moe/83taku.png)
+</h4> 
+<h4 align="center">
