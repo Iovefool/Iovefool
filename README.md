@@ -1,6 +1,6 @@
 <h4 align="center">  
 
-  ![](https://komarev.com/ghpvc/?username=Iovefool&color=grey&style=flat-square&label=˚ʚ♡ɞ˚&abbreviated=true)
+  ![](https://komarev.com/ghpvc/?username=Iovefool&color=grey&style=flat-square&label=˚ʚ♡ɞ˚)
 </h4>
 </p>
 
