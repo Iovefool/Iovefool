@@ -17,6 +17,8 @@
 
 <h4 align="center">
   
-<h4 align="center">  
+[𝒓𝒆𝒏𝒕𝒓𝒚](https://rentry.co/slipstream) [𝒂𝒕𝒂](https://calamity.atabook.org/) [𝒔𝒕𝒓𝒂𝒘𝒑𝒂𝒈𝒆](https://sun2theshrine.straw.page/)
+
+
 
 
