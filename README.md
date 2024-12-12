@@ -1,5 +1,10 @@
 
+
 <h4 align="center">
+
+[![Iovefool](https://spotify-github-profile.kittinanx.com/api/view?uid=amwonvf2avhdwndphxsrhb8g5&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&bar_color=53b14f&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
+
+
   
 ![](https://files.catbox.moe/83taku.png)
 </h4> 
@@ -20,6 +25,5 @@
 [ʀᴇɴᴛʀʏ](https://rentry.co/slipstream) [ᴀᴛᴀ](https://calamity.atabook.org/) [ꜱᴛʀᴀᴡᴘᴀɢᴇ](https://sun2theshrine.straw.page/)
 
 [ᴄᴏʟᴏʀ ᴍʏ ᴛʀᴇᴇ](https://colormytree.me/2024/01JE9VWSQKA5TFYWGT97X64REF)
-
 
 
