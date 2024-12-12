@@ -25,5 +25,4 @@
 
 [ᴄᴏʟᴏʀ ᴍʏ ᴛʀᴇᴇ](https://colormytree.me/2024/01JE9VWSQKA5TFYWGT97X64REF)
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=amwonvf2avhdwndphxsrhb8g5&cover_image=true&theme=natemoo-re&show_offline=false&background_color=4d4c4c&interchange=true&bar_color=ffffff&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
-
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=amwonvf2avhdwndphxsrhb8g5&cover_image=true&theme=natemoo-re&show_offline=false&background_color=4d4c4c&interchange=false&bar_color=6f6d6d&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
