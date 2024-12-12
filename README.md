@@ -14,7 +14,7 @@
 
 <h4 align="center">
   
-  [<ins>ʀᴇɴᴛʀʏ</ins>](https://rentry.co/slipstream) [<ins>ᴀᴛᴀ</ins>](https://calamity.atabook.org/) [<ins>ꜱᴛʀᴀᴡᴘᴀɢᴇ</ins>](https://sun2theshrine.straw.page/)
+  [<ins>ʀᴇɴᴛʀʏ</ins>](https://rentry.co/kamori) [<ins>ᴀᴛᴀ</ins>](https://calamity.atabook.org/) [<ins>ꜱᴛʀᴀᴡᴘᴀɢᴇ</ins>](https://sun2theshrine.straw.page/)
 
 
 ![](https://files.catbox.moe/u4pdti.png)
