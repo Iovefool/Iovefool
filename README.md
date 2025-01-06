@@ -22,5 +22,5 @@
 
 <h4 align="center">
   
-[<ins>ᴄᴏʟᴏʀ ᴍʏ ᴛʀᴇᴇ</ins>](https://colormytree.me/2024/01JE9VWSQKA5TFYWGT97X64REF)
+
 
