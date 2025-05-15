@@ -21,7 +21,7 @@
 
 <h4 align="center">
   
-  [<ins>ʀᴇɴᴛʀʏ</ins>](https://rentry.co/yurilvr69) [<ins>ᴀᴛᴀ</ins>](https://calamity.atabook.org/) [<ins>ꜱᴛʀᴀᴡᴘᴀɢᴇ</ins>](https://euphorial.straw.page/)
+  [rentry](https://rentry.co/yurilvr69) [ata](https://calamity.atabook.org/) [strawpage](https://euphorial.straw.page/)
 
 
 
