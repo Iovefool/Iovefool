@@ -7,7 +7,7 @@
 </h4> 
 <h4 align="center">
   
-  ![](https://komarev.com/ghpvc/?username=Iovefool&color=966fd6&style=flat-round&label=❤︎)
+  ![](https://komarev.com/ghpvc/?username=Iovefool&color=966fd6&style=flat-round&label=★)
 </h4>
 </p>
 
