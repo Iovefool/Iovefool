@@ -2,12 +2,6 @@
 
 
 
-
-  
-</h4> 
-<h4 align="center">
-  
-
 <h4 align="center">
 
  ![](https://projectpokemon.org/images/normal-sprite/rockruff.gif)
@@ -15,7 +9,7 @@
 
 <h4 align="center">
   
-  <ins>[rentry](https://rentry.co/yurilvr69)</ins>⠀⠀ <ins>[ata](https://calamity.atabook.org/)</ins>⠀⠀ <ins>[strawpage](https://euphorial.straw.page/)</ins>
+  <sub>[**RENTRY**](https://rentry.co/astraIfox)⠀⠀ [**ATABOOK**](https://calamity.atabook.org/)⠀⠀ [**STRAWPAGE**](https://euphorial.straw.page/)</sub>
 
 
 ![](https://komarev.com/ghpvc/?username=Iovefool&color=966fd6&style=plastic&label=☆)
@@ -23,6 +17,3 @@
 </p>
 
 <h4 align="center">
-  
-
-
