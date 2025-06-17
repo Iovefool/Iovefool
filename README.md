@@ -3,7 +3,7 @@
 
 <h4 align="center">
 
-![](https://komarev.com/ghpvc/?username=Iovefool&color=966fd6&style=plastic&label=☆)
+![](https://komarev.com/ghpvc/?username=Iovefool&color=a2bffe&style=plastic&label=☆)
 
 
  ![](https://projectpokemon.org/images/normal-sprite/rockruff.gif)
