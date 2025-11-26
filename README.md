@@ -14,6 +14,5 @@
   
   <sub>[**RENTRY**](https://rentry.co/astraIfox)⠀⠀ [**ATABOOK**](https://calamity.atabook.org/)⠀⠀ [**STRAWPAGE**](https://euphorial.straw.page/)</sub>
 
-<sub>[**LISTO**](https://listography.com/euphoriaa)<sub>
 
 <h4 align="center">
