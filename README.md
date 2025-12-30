@@ -5,11 +5,11 @@
 
 
 
-[**r͟e͟n͟t͟r͟y**](https://rentry.co/astraIfox)⠀⠀ ‎ ‎ ‎ ‎   ‎ ‎ ‎ ‎[**a͟t͟a͟b͟o͟o͟k**](https://calamity.atabook.org/)⠀⠀ 
+[<ins>**rentry**](https://rentry.co/astraIfox)⠀⠀ ‎ ‎ ‎ ‎   ‎ ‎ ‎ ‎[<ins>**atabook**](https://calamity.atabook.org/)⠀⠀ 
 
  ![](https://files.catbox.moe/1553fp.jpg)
  
-[**s͟t͟r͟a͟w͟p͟a͟g͟e**](https://euphorial.straw.page/)⠀⠀ ‎ ‎      ‎ ‎ ‎ ‎ ‎ [**li͟s͟t͟o**](https://listography.com/euphoriaa)
+[<ins>**strawpage**](https://euphorial.straw.page/)⠀⠀ ‎ ‎      ‎ ‎ ‎ ‎ ‎ [<ins>**listo**](https://listography.com/euphoriaa)
 
 <h4 align="center">
 
