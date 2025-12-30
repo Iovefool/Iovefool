@@ -5,14 +5,14 @@
 
 
 
-[**r̲e̲n̲t̲r̲y**](https://rentry.co/astraIfox)⠀⠀ ‎ ‎ ‎ ‎   ‎ ‎ ‎ ‎[**a̲t̲a̲b̲o̲o̲k̲**](https://calamity.atabook.org/)⠀⠀ 
+[**r͟e͟n͟t͟r͟y**](https://rentry.co/astraIfox)⠀⠀ ‎ ‎ ‎ ‎   ‎ ‎ ‎ ‎[**a͟t͟a͟b͟o͟o͟k**](https://calamity.atabook.org/)⠀⠀ 
 
  ![](https://files.catbox.moe/1553fp.jpg)
  
-[**s̲t̲r̲a̲w̲pa̲ge̲**](https://euphorial.straw.page/)⠀⠀ ‎ ‎      ‎ ‎ ‎ ‎ ‎ [**l̲i̲s̲t̲o̲**](https://listography.com/euphoriaa)
+[**s͟t͟r͟a͟w͟p͟a͟g͟e**](https://euphorial.straw.page/)⠀⠀ ‎ ‎      ‎ ‎ ‎ ‎ ‎ [**li͟s͟t͟o**](https://listography.com/euphoriaa)
 
 <h4 align="center">
-  
-![](https://komarev.com/ghpvc/?username=Iovefool&color=FAA0A0&style=plastic&label=☆)
+
+   ![](https://komarev.com/ghpvc/?username=Iovefool&color=FAA0A0&style=plastic&label=☆)
 
 <h4 align="center">
