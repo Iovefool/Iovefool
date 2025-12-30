@@ -5,11 +5,11 @@
 
 
 
-[**RENTRY**](https://rentry.co/astraIfox)⠀⠀ [**ATABOOK**](https://calamity.atabook.org/)⠀⠀ 
+[**RENTRY**](https://rentry.co/astraIfox)⠀⠀ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎[**ATABOOK**](https://calamity.atabook.org/)⠀⠀ 
 
  ![](https://files.catbox.moe/1553fp.jpg)
  
- [**STRAWPAGE**](https://euphorial.straw.page/)⠀⠀       [**LISTO**](https://listography.com/euphoriaa)
+[**STRAWPAGE**](https://euphorial.straw.page/)⠀⠀ ‎ ‎ ‎ ‎ ‎ ‎ ‎ [**LISTO**](https://listography.com/euphoriaa)
 
 <h4 align="center">
   
