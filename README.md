@@ -12,7 +12,7 @@
 
 <h4 align="center">
   
-  <sub>[**RENTRY**](https://rentry.co/astraIfox)⠀⠀ [**ATABOOK**](https://calamity.atabook.org/)⠀⠀ [**STRAWPAGE**](https://euphorial.straw.page/)</sub>
+  [**RENTRY**](https://rentry.co/astraIfox)⠀⠀ [**ATABOOK**](https://calamity.atabook.org/)⠀⠀ [**STRAWPAGE**](https://euphorial.straw.page/)
 
 
 <h4 align="center">
