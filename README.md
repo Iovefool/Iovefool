@@ -3,7 +3,7 @@
 
    ![](https://komarev.com/ghpvc/?username=Iovefool&color=green&style=plastic&label=☆)
    
- ![](https://files.catbox.moe/trqyo7.png)
+ ![](https://files.catbox.moe/hxc4sf.png)
  
 [<ins>**rentry**](https://rentry.co/astraIfox) ⠀ ‎ ‎  ‎[<ins>**atabook**](https://calamity.atabook.org/) ⠀ ‎ ‎ [<ins>**strawpage**](https://euphorial.straw.page/) ⠀ ‎ ‎ [<ins>**listo**](https://listography.com/euphoriaa)
 
