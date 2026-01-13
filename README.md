@@ -5,7 +5,7 @@
    
  ![](https://files.catbox.moe/hxc4sf.png)
  
-[<ins>**rentry**](https://rentry.co/astraIfox) ⠀ ‎ ‎  ‎[<ins>**atabook**](https://calamity.atabook.org/) ⠀ ‎ ‎ [<ins>**strawpage**](https://euphorial.straw.page/) ⠀ ‎ ‎ [<ins>**listo**](https://listography.com/euphoriaa)
+[<ins>**rentry**](https://rentry.co/astraIfox) ⠀ ‎ ‎  ‎[<ins>**atabook**](https://calamity.atabook.org/) ⠀ ‎ ‎ [<ins>**listo**](https://listography.com/euphoriaa) ⠀ ‎ ‎ 
 
 <h4 align="center">
 
