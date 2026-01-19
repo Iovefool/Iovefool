@@ -1,9 +1,9 @@
 
 <h4 align="center">⠀⠀ 
 
-   ![](https://komarev.com/ghpvc/?username=Iovefool&color=green&style=plastic&label=☆)
+   ![](https://komarev.com/ghpvc/?username=Iovefool&color=grey&style=plastic&label=☆)
    
- ![](https://files.catbox.moe/hxc4sf.png)
+ ![](https://projectpokemon.org/images/normal-sprite/rockruff.gif)
  
 [<ins>**rentry**](https://rentry.co/astraIfox) ⠀ ‎ ‎  ‎[<ins>**atabook**](https://calamity.atabook.org/) ⠀ ‎ ‎ [<ins>**listo**](https://listography.com/euphoriaa) ⠀ ‎ ‎ 
 
