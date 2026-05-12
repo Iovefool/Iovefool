@@ -1,7 +1,7 @@
 
 <h4 align="center">⠀⠀ 
 
-   ![](https://komarev.com/ghpvc/?username=Iovefool&color=grey&style=plastic&label=☆)
+   ![](https://komarev.com/ghpvc/?username=Iovefool&color=grey&c&label=☆)
    
  ![](https://projectpokemon.org/images/normal-sprite/rockruff.gif)
  
