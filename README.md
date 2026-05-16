@@ -3,7 +3,7 @@
 
    ![](https://komarev.com/ghpvc/?username=Iovefool&color=grey&c&label=☆)
    
- ![](https://projectpokemon.org/images/normal-sprite/rockruff.gif)
+ ![](https://files.catbox.moe/c2fw5o.png)
  
 [<ins>**rentry**](https://rentry.co/astraIfox) ⠀ ‎ ‎  ‎[<ins>**atabook**](https://calamity.atabook.org/) ⠀ ‎ ‎ [<ins>**listo**](https://listography.com/euphoriaa) ⠀ ‎ ‎ 
 
