@@ -1,7 +1,7 @@
 
 <h4 align="center">⠀⠀ 
 
-   ![](https://komarev.com/ghpvc/?username=Iovefool&color=grey&c&label=☆)
+   ![](https://komarev.com/ghpvc/?username=Iovefool&color=FAA0A0&c&label=☆)
 
  ![](https://files.catbox.moe/s2lr37.png)
  
