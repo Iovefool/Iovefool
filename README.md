@@ -6,7 +6,7 @@
 
  ![](https://files.catbox.moe/xain2z.jpg)
  
-[**𝐑𝐄𝐍𝐓𝐑𝐘**](https://rentry.co/foreternal) ⠀⠀ ‎ ‎  ‎⠀ ‎ ‎  ‎  ‎[‎‎新𝐁𝐎𝐎𝐊‎‎](https://calamity.atabook.org/) ⠀ ‎⠀ ‎ ‎ ⠀ ‎ ‎  ‎ [**𝐋𝐈𝐒𝐓𝐎**](https://listography.com/euphoriaa) ⠀ ‎ ‎ 
+[**𝐑𝐄𝐍𝐓𝐑𝐘**](https://rentry.co/foreternal) ⠀⠀ ‎ ‎   ‎⠀ ‎ ‎ ‎⠀ ‎ ‎  ‎  ‎[‎‎新𝐁𝐎𝐎𝐊‎‎](https://calamity.atabook.org/) ⠀ ‎⠀ ‎ ‎  ‎⠀ ‎ ‎ ⠀ ‎ ‎  ‎ [**𝐋𝐈𝐒𝐓𝐎**](https://listography.com/euphoriaa) ⠀ ‎ ‎ 
 
 
    ![](https://komarev.com/ghpvc/?username=Iovefool&color=080808&c&label=☆)
