@@ -4,7 +4,7 @@
 
 [**♡ 𝐆𝐔𝐍𝐒**](https://guns.lol/remorse4ul)
 
- ![](https://files.catbox.moe/xain2z.jpg)
+ ![](https://files.catbox.moe/hfefnb.png) 
  
 [**𝐑𝐄𝐍𝐓𝐑𝐘**](https://rentry.co/foreternal) ⠀⠀ ‎ ‎   ‎⠀ ‎ ‎ ‎⠀ ‎ ‎  ‎  ‎[‎‎新𝐁𝐎𝐎𝐊‎‎](https://calamity.atabook.org/) ⠀ ‎⠀ ‎ ‎  ‎⠀ ‎ ‎ ⠀ ‎ ‎  ‎ [**𝐋𝐈𝐒𝐓𝐎**](https://listography.com/euphoriaa) ⠀ ‎ ‎ 
 
