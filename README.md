@@ -13,4 +13,4 @@
 
 <h4 align="left">
  
-thank you [@ponytowners](https://github.com/ponytowners), [@pt-fashion](https://github.com/pt-fashion), [@ponytowncosplayers](https://github.com/ponytowncosplayers)
+thank you [@ponytowners](https://github.com/ponytowners), [@pt-fashion](https://github.com/pt-fashion), [@ponytowncosplayers](https://github.com/ponytowncosplayers), [@pt-walk-of-fame](https://github.com/pt-walk-of-fame)
