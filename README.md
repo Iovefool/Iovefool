@@ -12,4 +12,5 @@
    ![](https://komarev.com/ghpvc/?username=Iovefool&color=080808&c&label=☆)
 
 <h4 align="left">
-thank you @ponytowners, @pt-fashion, @ponytowncosplayers
+ 
+thank you [@ponytowners](https://github.com/ponytowners), [@pt-fashion](https://github.com/pt-fashion), [@ponytowncosplayers](https://github.com/ponytowncosplayers)
