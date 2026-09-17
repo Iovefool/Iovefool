@@ -19,6 +19,6 @@
 
       <a href="https://rentry.co/foreternal">![](https://files.catbox.moe/nbu982.webp)</a>                                     <a href="https://calamity.atabook.org/">![](https://files.catbox.moe/2y55cz.webp)</a>  
 
-${\color{#a9a9a7}While  im  yours  and  you  are  mine  .}$ ![](https://files.catbox.moe/f4mlbt.webp)![](https://files.catbox.moe/c3i4hv.webp)
+${\color{#a9a9a7}While  im  yours  and  you  are  mine  .}$
 
 ![](https://komarev.com/ghpvc/?username=Iovefool&style=plastic&color=000000&label=𖹭)
