@@ -8,7 +8,7 @@
 <details> 
 <summary><code>-⚔︎</code> ۫⠀</summary> 
 <br>
-   ⠀ <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&letterSpacing=30%25&pause=1000&color=D7D7D7&center=true&width=435&lines=%E2%80%86+wip" alt="Typing SVG" /></a> ⠀⠀⠀
+   ⠀ <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&letterSpacing=30%25&pause=1000&color=D7D7D7&center=true&width=435&lines=%E2%80%86+wip+%28layout+better+on+pc%29" alt="Typing SVG" /></a> ⠀⠀⠀
 </details>
     </td>
   </tr>
