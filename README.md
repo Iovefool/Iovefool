@@ -1,7 +1,7 @@
 <div id="text" align="center">
 
 
-   ${\color{#a9a9b7}'This  world  is  cruel..  }$ 
+   ${\color{#a9a9b7}' This  world  is  cruel..  }$ 
 
    <code>[guns.lol](https://guns.lol/remorse4ul)</code>
    
