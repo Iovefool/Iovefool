@@ -15,7 +15,7 @@
   </tr>
 
 
-<img src="https://file.garden/amFUbnSgVTH7NHKQ/58858e42876daad0d1cb590b981c109e.jpg" width="360" height="165" ><br>
+<img src="https://files.catbox.moe/ov11dd.jpg" width="360" height="165" ><br>
 
 
       <a href="https://rentry.co/foreternal">![](https://files.catbox.moe/nbu982.webp)</a>                                     <a href="https://calamity.atabook.org/">![](https://files.catbox.moe/2y55cz.webp)</a>  
