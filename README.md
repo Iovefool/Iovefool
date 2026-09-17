@@ -1,5 +1,6 @@
 <div id="text" align="center">
 
+![](https://files.catbox.moe/f4mlbt.webp)![](https://files.catbox.moe/c3i4hv.webp)
 
    ${\color{#a9a9b7}And  i  want  it  all  the  time  ,}$ 
 
