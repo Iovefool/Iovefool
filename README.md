@@ -19,7 +19,7 @@
 
       <a href="https://rentry.co/foreternal">![](https://files.catbox.moe/nbu982.webp)</a>                                     <a href="https://calamity.atabook.org/">![](https://files.catbox.moe/2y55cz.webp)</a>  
 
-${\color{#a9a9a7}but  its  also  very  beautiful  .'}$
+${\color{#a9a9a7}but  its  also  very  beautiful.  '}$
 
 ![](https://komarev.com/ghpvc/?username=Iovefool&style=plastic&color=000000&label=𖹭)
 
