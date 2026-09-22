@@ -3,7 +3,7 @@
 
    ${\color{#a9a9b7}' This  world  is  cruel..  }$ 
 
-   <code>[listo](https://listography.com/remorseful)</code>                      <code>[guns.lol](https://guns.lol/remorse4ul)</code>
+   <code>[guns.lol](https://guns.lol/remorse4ul)</code>                      <code>[listo](https://listography.com/remorseful)</code>
    
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&letterSpacing=1px;&duration=3000&pause=1000&color=D7D7D7&center=true&random=true&width=435&lines=%E2%80%86+%28%CB%B6%E1%B5%94+%E1%B5%95+%E1%B5%94%CB%B6%29;%E2%80%86+%28%E2%95%A5%EF%B9%8F%E2%95%A5%29;%E2%80%86+%E1%93%9A%E2%82%8D+%5E.+.%5E%E2%82%8E;%E2%80%86+%EA%92%B0%E1%83%90+%E2%99%A1+%E0%BB%92%EA%92%B1" alt="Typing SVG" /></a>
 
