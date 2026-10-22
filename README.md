@@ -1,7 +1,7 @@
 <div id="text" align="center">
 
 
-   ${\color{#a9a9a7}' This  world  is  cruel..  }$ 
+   $\color{#a9a9a7}\text{" This world is cruel. . . "}$ 
 
    <code>[guns.lol](https://guns.lol/remorse4ul)</code>                      <code>[listo](https://listography.com/remorseful)</code>
    
@@ -10,7 +10,7 @@
 <img src="https://files.catbox.moe/ov11dd.jpg" width="360" height="165" ><br>
 <a href="https://rentry.co/foreternal">![](https://files.catbox.moe/5qr1al.png)</a>                         <a href="https://vampiris.atabook.org/">![](https://files.catbox.moe/giddfk.png)</a>  
 
-${\color{#a9a9a7}but  its  also  very  beautiful.  '}$
+$\color{#a9a9a7}\text{ but it's also very beautiful. "}$
 
 ![](https://komarev.com/ghpvc/?username=Iovefool&style=plastic&color=000000&label=𖹭)
 
