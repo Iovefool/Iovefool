@@ -10,7 +10,7 @@
 <img src="https://files.catbox.moe/ov11dd.jpg" width="360" height="165" ><br>
 <a href="https://rentry.co/foreternal">![](https://files.catbox.moe/5qr1al.png)</a>                         <a href="https://vampiris.atabook.org/">![](https://files.catbox.moe/giddfk.png)</a>  
 
-$\color{#a9a9a7}\text{" 𝑏𝑢𝑡 𝑖𝑡'𝑠 𝑎𝑙𝑠𝑜 𝑣𝑒𝑟𝑦 𝑏𝑒𝑎𝑢𝑡𝑖𝑓𝑢𝑙 . "}$
+$\color{#a9a9a7}\text{" . . .𝑏𝑢𝑡 𝑖𝑡'𝑠 𝑎𝑙𝑠𝑜 𝑣𝑒𝑟𝑦 𝑏𝑒𝑎𝑢𝑡𝑖𝑓𝑢𝑙 . "}$
 
 ![](https://komarev.com/ghpvc/?username=Iovefool&style=plastic&color=000000&label=𖹭)
 
