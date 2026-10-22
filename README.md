@@ -14,7 +14,6 @@ $\color{#a9a9a7}\text{" . . . 𝑏𝑢𝑡 𝑖𝑡'𝑠 𝑎𝑙𝑠𝑜 𝑣�
 
 ![](https://komarev.com/ghpvc/?username=Iovefool&style=plastic&color=000000&label=𖹭)
 
-
 <div id="text" align="left">
 
 --------------------
